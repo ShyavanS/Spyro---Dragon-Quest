@@ -1,0 +1,1 @@
+Thank you for installing Spyro - Dragon Quest. Enjoy the game!
